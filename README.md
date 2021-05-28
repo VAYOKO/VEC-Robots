@@ -2,6 +2,12 @@
 
 
 
+
+![vecpic1](https://user-images.githubusercontent.com/63534193/120002405-ffd9e300-bffe-11eb-9a04-18c58bb7b864.JPG)
+
+
+
+
 ![vec1](https://user-images.githubusercontent.com/63534193/119938390-88806100-bfb6-11eb-893c-d7765c0b0b4e.JPG)
 
 
